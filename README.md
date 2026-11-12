@@ -30,6 +30,7 @@ Contact: 088823 73711
 
 ## Find Us Online
 
-[Cleanado Drycleaners – Google Maps](https://maps.app.goo.gl/gB4NFZd8Cdub65Uj8)
+[Cleanado Drycleaners – Google Maps](https://share.google/Hu7mdoMPA1Jl7DyN8)
+)
 
 [Visit Our Website](https://cleanadodrycleaning.netlify.app/)
